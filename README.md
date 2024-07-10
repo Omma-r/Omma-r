@@ -15,4 +15,3 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...el
 - ⚡ Fun fact: ...si
 -->
-https://@Omma-r terabox.com/s/1jpDRuqEAad-pRuK1jyCTfg[]_
